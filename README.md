@@ -1,5 +1,5 @@
 # 💫 About Me:
-This is Karthikeyan, Founder Hion Studios
+This is Karthikeyan, CEO Tranz Technologies
 
 
 ## 🌐 Socials:
